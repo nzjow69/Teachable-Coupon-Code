@@ -157,27 +157,25 @@ Follow these **6 easy step**s to claim your discount on Teachable.
 
 **Step 1:** Go to the [**Teachable website**](https://partnerstack.teachable.com/8js9yaa966ik) and click on the pricing button in the menu.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdkNSmet6zAIhdXf20hwpuSqhxTHn0CuNP54HU5QkDMV-nZEq_bcFcu1KObfe2N5vq4fkfefA86hEDrAqITph07W2czhJN6W7k99JXCYNC-N_13gGz5b20zfbK9TpxmAZDeaoPEqQ?key=VOGyYFgwNp532SfQ0w9QLWeG)
+![Teachable Website](https://github.com/user-attachments/assets/b2015cc4-5ccb-4f73-a9aa-44a62d7e3881)
 
 **Step 2:** **Choose the plan** that works best for you.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd1jmGqAM2gkApz7b8cvN2WwQyAwFgnbYeLhrRLF-ikEEDNJeEZnEgjsdtF8WrYdvzuoXoUat2RVdt0LpoveiqT9d0jkxHF4EjmKxxzYLrMXnXq7E0yYssFWDWQrifXO_JMaV2stg?key=VOGyYFgwNp532SfQ0w9QLWeG)
+![choose a plan](https://github.com/user-attachments/assets/12ce6b12-8f2e-4c02-8a74-18331fad50ea)
 
 **Step 3:** **Sign up for a Teachable account** or log in if you already have one.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXceBH9LSqDixsm9j9Ja2wah01SVfNyLeL3eEokKqImIAS6PBJLxjQYpVBegXW6j_Vd1SWeKfg4ZnFVTyp9uzU95ii9efKALxsHyZ2H8hg5wznnSoUM8Xea5jqPR9wehUummmLO3Jg?key=VOGyYFgwNp532SfQ0w9QLWeG)
+![sign up for teachable](https://github.com/user-attachments/assets/1c739032-1aed-4fa6-9365-ea96f2a46c11)
 
 **Step 4:** **Enter your billing address** and payment details, then click Next.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfNIcZHwwvouHLimL-qwf0k2PaMQfov_izmaMZoQPkv5RnHTo0jJTyvrNTOorv5_wIg21-EnRFB_6NoUZKCHm4aDGZeqh3sOl1bJosDbqSLYpjI-fQ9PrHi5D2Hfb4n-tvic-T2Pw?key=VOGyYFgwNp532SfQ0w9QLWeG)
+![billing address](https://github.com/user-attachments/assets/ada6f481-907a-4783-bb19-9c2c8412e038)
 
 **Step 5:** Type in your Teachable coupon code and click Apply.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfQYCbIDjFBKEfuutu43T79aGFmh91bI5v2gRyCnUFfOEc7gzg01WB5Qin7frnQm9ILXvRADccmbROBKfM-FhqcCLAjUVVmsmHxMGplP5EwlhhM188BFFfUnmVjz9ulGx5r_SWY?key=VOGyYFgwNp532SfQ0w9QLWeG)
+![teachable coupon deal](https://github.com/user-attachments/assets/652d9a37-ea45-43f0-be33-603d7f03a0b6)
 
 That’s it! You’ve successfully claimed your discount on Teachable.
-
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXf4IKnpLpGdFBmjEIc4MYodYuHiGOSc8Ua_BrmRUfkKPetQ-zu_8kFuy2JeDHoR7XOZ1UIAH3vWcNG3VX84N0tnTa-aVI32242DmxxTnlbCckn5Z4E6hpQ3A1pCaV7EBAdg_PpZmA?key=VOGyYFgwNp532SfQ0w9QLWeG)
 
 ## Teachable Pricing & Discounts
 
