@@ -337,3 +337,9 @@ Launch Accelerator is a new tool designed to help you launch and sell your cours
 ### What Is SSO Teachable?
 
 **Teachable SSO (Single Sign-On)** is a feature that allows users to log in to **Teachable** using their credentials from another platform, instead of creating a new account or using separate login details.
+
+**More Deals**
+
+* [Udacity coupon](https://github.com/nzjow69/Udacity-coupon-code)
+* [Masterclass coupon](https://github.com/nzjow69/masterclass-coupon)
+* [Mindvalley coupon](https://github.com/nzjow69/mindvalley-coupon)
