@@ -75,7 +75,8 @@ Whether you're just starting with the Basic Plan or need advanced features with 
 
 [**Save $99**](https://partnerstack.teachable.com/8js9yaa966ik) annually on everything with this Teachable Discount code, and unlock advanced tools designed for serious creators.
 
-[[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcw06e_vNv_2RrojkGjm274fGp4Qzg5PgLT2y0xITqSgFNULnOGVzUqPJffQ-N6S5JaszEl659OU03DOYQtRdMuLXc5zY-pxqgBWoYmqTu1rcQb95A9K1FlQrBk0F_gA-CRekiq?key=VOGyYFgwNp532SfQ0w9QLWeG)](https://partnerstack.teachable.com/8js9yaa966ik)
+[![teachable dscount code](https://github.com/user-attachments/assets/829da053-d01d-403d-8ac9-da79b2f67e51)
+](https://partnerstack.teachable.com/8js9yaa966ik)
 
 What you will get:
 
@@ -93,7 +94,8 @@ What you will get:
 
 Grab the Teachable Basic Plan for just [**$39/month**](https://partnerstack.teachable.com/8js9yaa966ik). This deal is perfect for new creators looking to launch their first course.
 
-[[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeaAmVxGrLjwYNK7YyiRm9rOJc8W3UBIBDBP2ioTbY99QVXB8FhL0mOp0Rz2ZWkWEb6JjrELEJsG-PktIvRltdi66iw4mOdo6nVsAccagxGu2RMq7bCpdLQ2MxUBUjkH3QaER6_xQ?key=VOGyYFgwNp532SfQ0w9QLWeG)](https://partnerstack.teachable.com/8js9yaa966ik)
+[![teachable dscount code](https://github.com/user-attachments/assets/2bc0beea-9d81-472e-a9cd-de9aaa3224a7)
+](https://partnerstack.teachable.com/8js9yaa966ik)
 
 What you will get:
 
