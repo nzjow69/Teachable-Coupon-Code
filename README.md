@@ -121,23 +121,23 @@ Looking for the best Teachable discounts? Here’s a quick overview of the top d
 |7-Day Free Trial – Explore paid features risk-free|30th March 2025|[Free Trial](https://partnerstack.teachable.com/8js9yaa966ik)|
 |Free Account – Start without any cost|28th Feb 2025|[Free Account](https://partnerstack.teachable.com/8js9yaa966ik)|
 
-### How to Get Your Teachable Coupon?
+### How to Claim a Teachable Coupon?
 
-Follow these 6 easy steps to claim your discount on Teachable.
+Follow these **6 easy steps** to claim your discount on Teachable.
 
-**Step 1:** Go to the Teachable website and click on the pricing button in the menu.
+**Step 1:** Go to the **[Teachable website](https://partnerstack.teachable.com/8js9yaa966ik)** and click on the pricing button in the menu.
 
 ![|624x243](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeWUadtpygD5JMDfBYN2oGrA4jDz5EfYd2LGDvA3FTXHTMT0KN8bDyiPiCyyaw4V-rNi39Znf5X3noyu94mBpjWNkG4dikEXZRNQlzxFjZBh9GIIYj7XgCQq4D758XDS5GKh-x_ww?key=InBFmaGxVxoaJuvk2gYHJwMv)
 
-**Step 2:** Choose the plan that works best for you.
+**Step 2:** **Choose the plan** that works best for you.
 
 ![|624x267](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfY9srtRTb2ACtF2qlPhAYKRwqodAdAU3e3VOWKMYqTvJ9uXdRbm72xaqkGNmi17EaiVLK7bvJREg6SFrK9UV-IXYPvSiP_g4Cw5LrUcCBG0tLo5MUEXYqHSkcbH3LCd9Zmd8iCVg?key=InBFmaGxVxoaJuvk2gYHJwMv)
 
-**Step 3:** Sign up for a Teachable account or log in if you already have one.
+**Step 3:** **Sign up for a Teachable account** or log in if you already have one.
 
 ![|624x455](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfeWzC2wjtIi4x-WZNVX602huSLmo9zWJvzPJrce8BYGmhZWHIiX0SCCBuosjBkNPQaAYF4jz6L3cDdLyxoEWwY0sifYD5Zt1-EfER0ML1oRZgKGNW35ew0W98igNnFVLRsJ_Yw?key=InBFmaGxVxoaJuvk2gYHJwMv)
 
-**Step 4:** Enter your billing address and payment details, then click Next.
+**Step 4:** **Enter your billing address** and payment details, then click Next.
 
 ![|396x589](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeqALsbpATj7QisXG9NUa3ZgE06Im9IOr4cO17hRMKryQz9arMepHYc9Icyz50MPY6FRgr9HGcfUQ7jRn4jp_bsTC3gC1IR0qanhYivopK4ST1GMWCAEbn_oKm2gI_VnA8Ec9aBOg?key=InBFmaGxVxoaJuvk2gYHJwMv)
 
