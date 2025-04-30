@@ -191,6 +191,7 @@ Teachable has four pricing plans, with discounts if you choose annual billing in
 | [Pro+ Plan](https://partnerstack.teachable.com/8js9yaa966ik) | $249/month | $199/month (20% off) | Advanced upselling, custom roles |
 | [Enterprise Plan](https://partnerstack.teachable.com/8js9yaa966ik) | Custom Pricing | Custom Pricing | White-glove support, dedicated manager |
 
+[Claim more discount coupons to save 75% off on Teachable](https://yupbeat.com/deals/teachable-coupon-code/).
 ## Does Teachable Offer a 7-Day Free Trial?
 
 Yes! Teachable offers a 7-day free trial on all paid plans for new users for 7 days. However, you’ll need to enter your credit card or payment details to start your trial.
