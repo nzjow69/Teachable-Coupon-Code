@@ -2,11 +2,9 @@
 
 Looking for **[Teachable coupon code](https://partnerstack.teachable.com/8js9yaa966ik)**? Then, you're in the right place!
 
-If you're a teacher, coach, or business owner, these special Teachable promo codes will help you save big on Basic, Pro, and Business plans.
+If you're a teacher, coach, or business owner, these special Teachable promo codes will help you save big on Basic, Pro, and Business plans and claim a 7-day free trial.
 
-Plus, if you pick the yearly plan, you’ll get extra perks like a **7-day free trial**.
-
-In this article, I'll show you how to get up to **80% off** on Teachable Pro and Basic plans and enjoy top features at the lowest price.
+![choose a plan](https://github.com/user-attachments/assets/12ce6b12-8f2e-4c02-8a74-18331fad50ea)
 
 ## Teachable Promo Code: Get Up to 80% Off Pro+ Plan!
 
@@ -162,8 +160,6 @@ Follow these **6 easy step**s to claim your discount on Teachable.
 ![Teachable Website](https://github.com/user-attachments/assets/b2015cc4-5ccb-4f73-a9aa-44a62d7e3881)
 
 **Step 2:** **Choose the plan** that works best for you.
-
-![choose a plan](https://github.com/user-attachments/assets/12ce6b12-8f2e-4c02-8a74-18331fad50ea)
 
 **Step 3:** **Sign up for a Teachable account** or log in if you already have one.
 
