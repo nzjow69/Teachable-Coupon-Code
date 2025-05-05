@@ -4,7 +4,7 @@ Looking for **[Teachable coupon code](https://partnerstack.teachable.com/8js9yaa
 
 If you're a teacher, coach, or business owner, these special Teachable promo codes will help you save big on Basic, Pro, and Business plans and claim a 7-day free trial.
 
-![choose a plan](https://github.com/user-attachments/assets/12ce6b12-8f2e-4c02-8a74-18331fad50ea)
+[![Teachable coupon & plans](https://github.com/user-attachments/assets/12ce6b12-8f2e-4c02-8a74-18331fad50ea)](https://partnerstack.teachable.com/8js9yaa966ik)
 
 ## Teachable Promo Code: Get Up to 80% Off Pro+ Plan!
 
