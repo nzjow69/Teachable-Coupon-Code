@@ -15,11 +15,9 @@ Save **$80/month** and enjoy up to **[80% off](https://partnerstack.teachable.co
 
 What you will get:
 
-👉 0% transaction fees
-
-👉 Custom user roles
-
-👉 More tools to grow your business
+1. 0% transaction fees
+2. Custom user roles
+3. More tools to grow your business
 
 ## Teachable Discount Code: Get 25% Off the Pro Plan!
 
@@ -30,11 +28,9 @@ Get [**25% off**](https://partnerstack.teachable.com/8js9yaa966ik) on the pro pl
 
 What you will get:
 
-👉 Create, sell, and grow with ease
-
-👉 5 Admin-Level Users
-
-👉 Priority Support
+1. Create, sell, and grow with ease
+2. 5 Admin-Level Users
+3. Priority Support
 
 
 ## Teachable Coupon Code: Get the Pro Plan for Just $119/Month!
@@ -48,15 +44,11 @@ Grab it now and start building your dream course today
 
 What you will get:
 
-👉 5 admin-level users
-
-👉 0% transaction fees
-
-👉 Advanced course-building tools
-
-👉 Integrated email marketing
-
-👉 Priority support
+1. 5 admin-level users
+2. 0% transaction fees
+3. Advanced course-building tools
+4. Integrated email marketing
+5. Priority support
 
 ## Get 10% OFF on Teachable Basic & Pro Plan!
 
@@ -78,15 +70,11 @@ Whether you're just starting with the Basic Plan or need advanced features with 
 
 What you will get:
 
-👉 5 admin-level users
-
-👉 0% transaction fees
-
-👉 Advanced course-building tools
-
-👉 Integrated email marketing
-
-👉 Get expert help when you need it
+1. 5 admin-level users
+2. 0% transaction fees
+3. Advanced course-building tools
+4. Integrated email marketing
+5. Get expert help when you need it
 
 ## Get the Teachable Basic Plan for Just $39/Month
 
@@ -97,11 +85,9 @@ Grab the Teachable Basic Plan for just [**$39/month**](https://partnerstack.teac
 
 What you will get:
 
-👉 Integrated payment processing
-
-👉 Third-party integrations
-
-👉 Community support
+1. Integrated payment processing
+2. Third-party integrations
+3. Community support
 
 ## Teachable 7-Day FREE Trial – Try It Risk-Free!
 
@@ -114,15 +100,11 @@ This is the perfect chance to explore everything Teachable has to offer and see 
 
 What you will get:
 
-👉 Access all paid features
-
-👉 Build and customize courses
-
-👉 Sell your courses
-
-👉 Experience the platform as an instructor
-
-👉 No credit card needed
+1. Access all paid features
+2. Build and customize courses
+3. Sell your courses
+4. Experience the platform as an instructor
+5. No credit card needed
 
 ## Teachable Black Friday Deal | Save 35% Off [Expired]
 
