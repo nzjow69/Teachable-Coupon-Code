@@ -1,4 +1,4 @@
-# Teachable Coupon Code (2025) - Get 80% Discount + Free Trial
+# Teachable Coupon Code (2025) - Get 65% Discount
 
 Looking for **[Teachable coupon code](https://partnerstack.teachable.com/8js9yaa966ik)**? Then, you're in the right place!
 
