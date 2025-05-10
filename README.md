@@ -144,6 +144,7 @@ Looking for the best Teachable discounts? Here’s a quick overview of the top d
 | Get the Basic Plan for $39/month – Exclusive for new instructors | 31st May 2025 | [66% Off on Basic](https://partnerstack.teachable.com/8js9yaa966ik) |
 | 7-Day Free Trial – Explore paid features risk-free | 31st May 2025 | [Free Trial](https://partnerstack.teachable.com/8js9yaa966ik) |
 | Free Account – Start without any cost | 31st May 2025 | [Free Account](https://partnerstack.teachable.com/8js9yaa966ik) |
+| Teachable Student Discount Get 20% Off | NA | Grab student discount |
 
 ## How to Claim a Teachable Coupon?
 
