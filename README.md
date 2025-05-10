@@ -113,6 +113,11 @@ Hurry! this is a super limited time offer valid till 16th may. Click the button 
 [![teachable womens day offer](https://github.com/user-attachments/assets/15fa5a58-677d-48f0-8643-6ef1ebde2cbd)
 ](https://partnerstack.teachable.com/8js9yaa966ik)
 
+### Claim Teachable 3 Months For Free
+Yes! you heard it right now you will get **[3 months free access](https://partnerstack.teachable.com/8js9yaa966ik)** on Teachable if you pay annually.
+[![Teachable 3 months free online](https://github.com/user-attachments/assets/1ac17501-5470-43b1-91f2-c8fa9563794e)
+](https://partnerstack.teachable.com/8js9yaa966ik)
+
 ## Teachable Black Friday Deal | Save 35% Off [Expired]
 
 You could grab a [**35% discount**](https://partnerstack.teachable.com/8js9yaa966ik) during the Teachable Black Friday deal, the deal was applicable to everything.
@@ -133,12 +138,12 @@ Looking for the best Teachable discounts? Here’s a quick overview of the top d
 
 | **Teachable Deals & Coupons** | **Expire Date** | **Discount Link** |
 | --- | --- | --- |
-| Save $50/month on the Pro+ plan | 30th April 2025 | [Save $50](https://partnerstack.teachable.com/8js9yaa966ik) |
-| Get Pro Plan at just $119/month (annual plan) | 30th April 2025 | [25% Off](https://partnerstack.teachable.com/8js9yaa966ik) |
-| Get 10% Off – Use code “MAGIC10” | 30th April 2025 | [“MAGIC10”](https://partnerstack.teachable.com/8js9yaa966ik) |
-| Get the Basic Plan for $39/month – Exclusive for new instructors | 30th April 2025 | [66% Off on Basic](https://partnerstack.teachable.com/8js9yaa966ik) |
-| 7-Day Free Trial – Explore paid features risk-free | 30th April 2025 | [Free Trial](https://partnerstack.teachable.com/8js9yaa966ik) |
-| Free Account – Start without any cost | 30th April 2025 | [Free Account](https://partnerstack.teachable.com/8js9yaa966ik) |
+| Save $50/month on the Pro+ plan | 31st May 2025 | [Save $50](https://partnerstack.teachable.com/8js9yaa966ik) |
+| Get Pro Plan at just $119/month (annual plan) | 31st May 2025 | [25% Off](https://partnerstack.teachable.com/8js9yaa966ik) |
+| Get 10% Off – Use code “MAGIC10” | 31st May 2025 | [“MAGIC10”](https://partnerstack.teachable.com/8js9yaa966ik) |
+| Get the Basic Plan for $39/month – Exclusive for new instructors | 31st May 2025 | [66% Off on Basic](https://partnerstack.teachable.com/8js9yaa966ik) |
+| 7-Day Free Trial – Explore paid features risk-free | 31st May 2025 | [Free Trial](https://partnerstack.teachable.com/8js9yaa966ik) |
+| Free Account – Start without any cost | 31st May 2025 | [Free Account](https://partnerstack.teachable.com/8js9yaa966ik) |
 
 ## How to Claim a Teachable Coupon?
 
