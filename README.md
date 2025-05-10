@@ -32,7 +32,6 @@ What you will get:
 2. 5 Admin-Level Users
 3. Priority Support
 
-
 ## Teachable Coupon Code: Get the Pro Plan for Just $119/Month!
 
 With this Teachable Pro Plan deal, you can get full access to premium features for just [**$119**](https://partnerstack.teachable.com/8js9yaa966ik) per month. Hurry! This deal is available for a limited time.
@@ -111,7 +110,7 @@ Claim **[35% off](https://partnerstack.teachable.com/8js9yaa966ik)** during this
 
 Hurry! this is a super limited time offer valid till 16th may. Click the button below to claim this Teachable promo deal.
 
-[![Teachable womens day offer](https://github.com/user-attachments/assets/df8113f0-261b-4cf5-bad7-2275b9883623)
+[![teachable womens day offer](https://github.com/user-attachments/assets/15fa5a58-677d-48f0-8643-6ef1ebde2cbd)
 ](https://partnerstack.teachable.com/8js9yaa966ik)
 
 ## Teachable Black Friday Deal | Save 35% Off [Expired]
