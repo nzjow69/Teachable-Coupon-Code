@@ -106,6 +106,14 @@ What you will get:
 4. Experience the platform as an instructor
 5. No credit card needed
 
+## Get 35% Off | Teachable Women's Day Sale
+Claim **[35% off](https://partnerstack.teachable.com/8js9yaa966ik)** during this special occasion on women's day 2025 and save up to $129/anually depnding on the plan you choose.
+
+Hurry! this is a super limited time offer valid till 16th may. Click the button below to claim this Teachable promo deal.
+
+[![Teachable womens day offer](https://github.com/user-attachments/assets/df8113f0-261b-4cf5-bad7-2275b9883623)
+](https://partnerstack.teachable.com/8js9yaa966ik)
+
 ## Teachable Black Friday Deal | Save 35% Off [Expired]
 
 You could grab a [**35% discount**](https://partnerstack.teachable.com/8js9yaa966ik) during the Teachable Black Friday deal, the deal was applicable to everything.
